@@ -14,7 +14,7 @@ ${\textsf{\color{#FF94AC}❝ MAKES YOU}}$ ${\textsf{\color{#DDA7AF}FEEL LIKE}}$ 
 
 ${\textsf{\color{#FAD479}　﹒  ◠}}$  ${\textsf{\color{#FAD479}　  ✩    }}$ ${\textsf{\color{#DBBD9E}　       ⊹    ﹒}}$ ${\textsf{\color{#DDA7AF}　  ◠}}$  ${\textsf{\color{#FF94AC}　　﹒  }}$
 
-<img src="https://64.media.tumblr.com/03c43bcfe245aea72e65ccd3e3d302b9/d5e057fd9d164e11-f3/s100x200/e55511ea8290a63de643e276507b7b377ad81b93.pnj"><img src="https://64.media.tumblr.com/1765777fecc137d7f7dc7fbfad812871/d5e057fd9d164e11-10/s100x200/73b5900318831ae3fd6186a5df5b359c38439065.pnj"><img src="https://64.media.tumblr.com/d5bb95e7ddac5a8bd7cc9986d272a344/d5e057fd9d164e11-13/s100x200/0cdfa8f5e45c03ca9b2c17e9bacce46b9d7fbee8.pnj">
+<img src="https://64.media.tumblr.com/d13519ccd3fae82bc1d0883063368240/c937cea2bae71fd6-18/s100x200/1f4fdb954525b9610c85a1ad0b58638ead551039.pnj"><img src="https://64.media.tumblr.com/d3973e63074715cc2dcb97950c8bdb66/537b0b09ba701db7-ac/s100x200/d033d34e1bc1f158fa11f3222478f09eeb9246a3.pnj"><img src="https://64.media.tumblr.com/34ac4ca761dfcdff1b184d32235567b9/3fda5e44e12fd176-ff/s100x200/d8110800a1d880c2e98535ed8afd0e4c1862550c.pnj">
 
 ${\textsf{\color{#FF94AC}☆}}$ ${\textsf{\color{#F09CAD}ˇ ‿ @}}$ ${\textsf{\color{#E2A5AF}᎓}}$  ${\textsf{\color{#D3ADB0}spamton}}$  ${\textsf{\color{#D3B6A9} or }}$   ${\textsf{\color{#E0C099}jamison !}}$  ${\textsf{\color{#EDCA89}﹢ 𐂯}}$  ${\textsf{\color{#7e9a53}}}$
 

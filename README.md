@@ -1,6 +1,10 @@
 <div align="center">
  
-
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=b2lc3p7ksacuj0kc45eynkrex&cover_image=true&theme=spotify-embed&show_offline=false&background_color=1f1f1f&interchange=false&profanity=false&bar_color=af1818&bar_color_cover=true&mode=light">
+  </a>
+</p>
 
 
 
@@ -24,5 +28,4 @@ ${\textsf{\color{#FF94AC}☆}}$  ${\textsf{\color{#FF94AC}DNI if}}$  ${\textsf{\
 <p align="center">
   <img src="https://files.catbox.moe/0eh1dx.gif">
 </p>
-
 
